@@ -1,1 +1,0 @@
-# AcadAndroidS4A4
